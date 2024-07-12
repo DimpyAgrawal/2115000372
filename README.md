@@ -1,4 +1,5 @@
 
+![Screenshot 2024-07-12 145720](https://github.com/user-attachments/assets/60f24729-016c-4414-9a3b-40772db485e6)
 
-![Screenshot 2024-07-12 145720](https://github.com/user-attachments/assets/7162da87-8c1e-4a8f-bf6a-943a331ed998)
-![afford](https://github.com/user-attachments/assets/e367482f-729f-4dec-a5c2-ba828f749e20)
+
+![Screenshot 2024-07-12 150043](https://github.com/user-attachments/assets/f5195e3c-1412-45d1-922a-9aea65a73c64)
